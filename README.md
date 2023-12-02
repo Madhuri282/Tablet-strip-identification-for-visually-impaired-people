@@ -1,0 +1,1 @@
+# Tablet-strip-identification-for-visually-impaired-people
